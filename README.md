@@ -7,7 +7,7 @@ Cuevana | Estrenos | Pelispedia | Pelisplus | Gnula | Repelisplus | Repelis | Pe
 <p><b><br></b></p>
 <p><b>🔴VER AHORA 👉 <a href="https://bleketekmovie.com/es/movie/1022789/intensa-mente-2" rel="noopener">Intensa Mente 2 Pelicula Completa 2024</a></b></p>
 <p><b><br></b></p>
-<p><b>🔴DESCARGAR 👉 <a href="https://bleketekmovie.com/es/movie/1022789/intensae-mente-2" rel="noopener">Intensa Mente 2 Pelicula Completa 2024</a></b></p>
+<p><b>🔴DESCARGAR 👉 <a href="https://bleketekmovie.com/es/movie/1022789/intensa-mente-2" rel="noopener">Intensa Mente 2 Pelicula Completa 2024</a></b></p>
 <p><b><br></b></p>
 
 19 de junio de 2024 en cines | 1h 36min | Aventura, Animación, Comedia, Familia Dirigida por Kelsey Mann | Guion Meg LeFauve, Dave Holstein Reparto Amy Poehler, Maya Hawke, Liza Lapira Título original Inside Out 2
